@@ -20,10 +20,6 @@ Y eso es lo más difícil de explicar. La angustia del hubiera no es imaginació
 
 Durante años pensé que era una debilidad. Que sentir tristeza o frustración por cosas que "no pasaron" era irracional. Pero ahora lo entiendo diferente: no es debilidad. Es la consecuencia directa de saber que las posibilidades no desaparecen. El precio de esa certeza.
 
-## 7. Las conexiones con la ciencia
-
-<!-- Desarrollar: física cuántica, teoría de multiversos, interpretación de muchos mundos de Everett, etc. -->
-
-## 8. Implicaciones filosóficas
+## 7. Implicaciones filosóficas
 
 <!-- Desarrollar: qué significa esto para el libre albedrío, la moral, la identidad, la muerte -->

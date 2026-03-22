@@ -195,3 +195,33 @@ No hay un "Nelson verdadero" en una realidad específica con copias en otras. Es
 Las realidades no son compartimentos separados y estáticos. Son un flujo dinámico e infinito donde todo se conecta, todo se ramifica, y la conciencia navega entre ellas sin poder discernir dónde empieza una y termina otra.
 
 Por eso el destino y el azar son ilusiones. El destino asume que hay UN camino fijo. El azar asume que hay eventos únicos e irrepetibles. Pero la realidad es un proceso infinito y dinámico donde todas las posibilidades se manifiestan continuamente.
+
+---
+
+## 7. Las conexiones con la ciencia
+
+Después del documental no me quedé quieto. Empecé a indagar — física teórica, teorías sobre el universo, el multiverso, partículas. Leía y seguía a físicos. Cada cosa que descubría era como encontrar piezas de algo que ya había armado solo, sin saber que existían.
+
+Dos cosas me volaron la cabeza.
+
+### El experimento de la doble rendija
+
+El experimento es simple: disparás partículas hacia una pared con dos agujeros. Si no observás, las partículas se comportan como si pasaran por ambos agujeros a la vez, creando un patrón de ondas. Pero si observás por cuál agujero pasa cada una, el patrón cambia — ahora solo pasa por uno.
+
+Esto significa que antes de observar, la partícula existe en todas las posibilidades simultáneamente. Solo cuando observás, una posibilidad se materializa. Las otras seguían ahí — simplemente no las viste.
+
+Yo había llegado a la misma conclusión a los 14 años, sin conocer este experimento: solo una realidad se materializa para cada observador, pero las demás existen.
+
+Y algo más: la partícula se materializa cuando la observás, pero las otras posibilidades no desaparecen — siguen existiendo aunque no las veas. Igual que las realidades. Igual que la conciencia que navega entre ellas sin poder verlas todas. Pero hay algo crucial: las realidades se crean aunque no las observemos. No dependemos de nosotros para existir. Somos, una vez más, no importantes.
+
+### La conexión fantasmagórica
+
+Einstein llamó al entrelazamiento cuántico "acción fantasmagórica a distancia". Dos partículas conectadas de tal forma que si medís una, instantáneamente afectás a la otra, sin importar la distancia. No es magia — es física comprobada. Pero no hay transferencia física entre ellas. Es conexión pura.
+
+La angustia del hubiera funciona igual. Siento el dolor de tragedias que no pasaron aquí. No porque esté imaginando — porque las realidades están entrelazadas. Mi conciencia está conectada con esas otras versiones de mí mismo que sí experimentaron la pérdida.
+
+No es transferencia física. No puedo viajar a esas realidades. Pero la conexión es real. Es una resonancia entre realidades, como el entrelazamiento cuántico pero a escala de realidades completas.
+
+La angustia es la evidencia. Es la acción fantasmagórica entre mundos.
+
+Y esto cierra con algo que ya dije antes: no podés construir una nave espacial para ir a otra realidad. No porque sea tecnológicamente imposible — sino porque no hay conexión física entre ellas. Las realidades no están separadas por distancia. Están superpuestas. La única conexión posible es la que ya existe: la resonancia. La misma que siento cuando la angustia del hubiera aparece sin que la llame.
