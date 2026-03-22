@@ -10,7 +10,7 @@ Esa frase siempre me generó rechazo.
 
 No porque fuera ateo o nihilista - ya he explicado mi lucha con la religión. Era porque la frase implicaba algo que contradecía todo lo que había descubierto: que algo puede estar destinado a un solo camino, a una sola posibilidad.
 
-"Todo sucede por una razón" sugiere que hay UN plan. UN destino. UNA razón por la cual esto sucedió y aquello no. Como si el universo fuera un director de orquesta dirigiendo cada evento hacia algún propósito específico.
+"Todo sucede por una razón" sugiere que hay UN plan. UN destino. UNA razón por la cual esto sucedió y aquello no.
 
 No podía aceptarlo.
 
@@ -78,17 +78,15 @@ Todo eso existe simultáneamente. No porque haya conciencia observándolo, sino 
 
 Las decisiones humanas no crean las realidades. Solo nos permiten navegar entre subconjuntos compatibles de un infinito que ya contiene absolutamente todo.
 
-La conciencia humana es solo una forma particular de experimentar el infinito. Pero el infinito existiría igual sin nosotros, con todas sus manifestaciones, desde el primer instante de un universo naciente hasta el último suspiro de uno agonizante.
+La conciencia humana es solo una forma particular de experimentar el infinito. Pero el infinito existiría igual sin nosotros, con todas sus manifestaciones.
 
 Y todas esas versiones - pasadas, presentes, futuras, con vida, sin vida, con conciencia, sin conciencia - existen ahora mismo, superpuestas, conectadas, infinitas.
 
 ### No somos importantes
 
-Porque quise desprenderme del ego de la conciencia humana que crea realidades.
+Al principio pensaba que las realidades eran producto de la conciencia humana. Que nuestras decisiones eran las que creaban las ramificaciones. Pero eso me dejaba incómodo — ¿qué pasaba antes de que existieran los humanos? ¿Qué pasa en una Tierra donde nunca se dieron las condiciones para la vida, o donde los dinosaurios nunca se extinguieron? Las realidades no pueden depender de nosotros para existir.
 
-Y no me costó mucho aceptarlo: no somos nada importantes.
-
-Somos solo una ramificación infinita más. Una entre infinitas. Las realidades no necesitan de nosotros para existir. Existían antes de que naciéramos, existirán después de que muramos, y existen ahora mismo en configuraciones donde nunca nacimos en absoluto.
+Y ahí me cayó la ficha: no somos importantes. Somos solo una ramificación infinita más. Una entre infinitas. Las realidades no nos necesitan para existir. Existían antes de que naciéramos, existirán después de que muramos, y existen ahora mismo en configuraciones donde nunca nacimos en absoluto.
 
 ### El espacio no es un contenedor
 
@@ -106,7 +104,7 @@ El espacio es una propiedad de cada realidad, no un contenedor externo. Cada rea
 
 No están "al lado" unas de otras porque no hay un "afuera" donde puedan estar. No hay distancia entre ellas. No puedes viajar "de una a otra" físicamente porque no existe el espacio entre ellas.
 
-Están aquí. Todas. Ahora mismo. En el mismo "lugar" ontológico.
+Están aquí. Todas. Ahora mismo. En el mismo lugar.
 
 Y lo crucial: ninguna realidad puede colapsar con otra.
 
@@ -178,7 +176,7 @@ Y todas son igualmente reales. Todas existen. Todas están ahora mismo superpues
 
 Pero yo - este Nelson, con esta configuración de conciencia, en este momento - solo puedo experimentar el subconjunto compatible con mi existencia actual.
 
-Las realidades existen independientemente de mí. Pero mi experiencia de ellas está limitada por compatibilidad, no por importancia.
+Las realidades existen independientemente de mí. Pero mi experiencia de ellas está limitada por compatibilidad.
 
 ### Nunca sabemos dónde estamos
 

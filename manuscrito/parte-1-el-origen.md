@@ -64,7 +64,7 @@ Recuerdo la sensación perturbadora de pensar esto. Porque si era cierto, signif
 
 Y entonces lo vi claro: esto explicaba los eventos que llamamos "milagros". Esos momentos donde alguien sobrevive lo imposible y dice "me salvé de milagro". No era milagro en el sentido religioso que me enseñaban en el colegio. Era simplemente que en la inmensa mayoría de las realidades murieron, pero en una sobrevivieron. Y su conciencia, por necesidad, continuó en esa única línea.
 
-Los "milagros" no eran intervenciones divinas - eran la evidencia observable de que las posibilidades se cumplen todas, y nuestra conciencia siempre fluye hacia las líneas donde seguimos existiendo.
+Los "milagros" no eran intervenciones divinas - eran la prueba de que las posibilidades se cumplen todas, y nuestra conciencia siempre fluye hacia las líneas donde seguimos existiendo.
 
 ### Los destellos de otras realidades
 
