@@ -200,9 +200,11 @@ Por eso el destino y el azar son ilusiones. El destino asume que hay UN camino f
 
 ## 7. Las conexiones con la ciencia
 
-Tenía 14 años. No sabía lo que era el Big Bang. Nunca había leído sobre física cuántica, ni sobre multiversos, ni sobre teorías de partículas. Era malo en matemáticas y física. Y sin embargo, sentado en un colectivo, llegué a ideas que otros alcanzaron después de décadas de investigación, ecuaciones y experimentos.
+Tenía 14 años. No sabía lo que era el Big Bang. Nunca había leído sobre física cuántica, ni sobre multiversos, ni sobre teorías de partículas. Era malo en matemáticas y física.
 
-No lo digo para presumir. Lo digo porque es importante: no estaba loco. No estaba inventando algo raro. Estaba tocando algo real, desde un lugar completamente distinto al científico — desde la experiencia emocional pura. Y la ciencia, sin saberlo, estaba llegando al mismo lugar por otro camino.
+La ciencia ya había llegado a muchas de estas ideas mucho antes de que yo existiera. Físicos brillantes, con décadas de trabajo, ecuaciones y experimentos, habían construido teorías sobre la naturaleza de la realidad. Yo no sabía nada de eso.
+
+Y sin embargo, desde un colectivo, desde la experiencia emocional pura, había llegado al mismo lugar sin saberlo. No es que yo haya descubierto algo nuevo — es que algo en esas ideas es tan fundamental que se puede tocar desde caminos completamente distintos. Eso me dice que estaba tocando algo real.
 
 Cuando empecé a investigar después del documental, lo que encontré no me contradijo. Me confirmó.
 
