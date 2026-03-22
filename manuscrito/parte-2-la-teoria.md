@@ -200,19 +200,61 @@ Por eso el destino y el azar son ilusiones. El destino asume que hay UN camino f
 
 ## 7. Las conexiones con la ciencia
 
+Tenía 14 años. No sabía lo que era el Big Bang. Nunca había leído sobre física cuántica, ni sobre multiversos, ni sobre teorías de partículas. Era malo en matemáticas y física. Y sin embargo, sentado en un colectivo, llegué a ideas que otros alcanzaron después de décadas de investigación, ecuaciones y experimentos.
+
+No lo digo para presumir. Lo digo porque es importante: no estaba loco. No estaba inventando algo raro. Estaba tocando algo real, desde un lugar completamente distinto al científico — desde la experiencia emocional pura. Y la ciencia, sin saberlo, estaba llegando al mismo lugar por otro camino.
+
+Cuando empecé a investigar después del documental, lo que encontré no me contradijo. Me confirmó.
+
 Después del documental no me quedé quieto. Empecé a indagar — física teórica, teorías sobre el universo, el multiverso, partículas. Leía y seguía a físicos. Cada cosa que descubría era como encontrar piezas de algo que ya había armado solo, sin saber que existían.
 
-Dos cosas me volaron la cabeza.
+Varias cosas me volaron la cabeza.
+
+### Hugh Everett y la bifurcación infinita
+
+Hugh Everett III era un físico. En 1957 propuso algo que la comunidad científica tardó décadas en tomar en serio: la Interpretación de Muchos Mundos de la mecánica cuántica.
+
+Su idea central era simple y radical al mismo tiempo. La física cuántica tradicional decía que cuando medís una partícula — por ejemplo, el spin de un electrón, que puede ser "arriba" o "abajo" — el universo elige un resultado y el otro desaparece. A eso lo llamaban el "colapso de la función de onda".
+
+Everett dijo: no. El universo no elige. No colapsa. Lo que pasa es que el universo se divide. En una realidad el electrón queda "arriba". En otra realidad queda "abajo". Las dos existen. Ninguna desaparece.
+
+Y esto no pasa solo con los electrones. Pasa con todo. Cada evento cuántico, cada posibilidad, cada decisión — el universo se ramifica. Todas las posibilidades se realizan. En realidades distintas, pero todas reales.
+
+Yo llegué a la misma conclusión a los 14 años, a mediados de los 90, sin saber nada de física cuántica. Me preguntaba: "¿A dónde va lo que no sucede aquí?" Y la respuesta era obvia: tiene que ir a algún lugar. Las posibilidades no pueden simplemente desaparecer.
+
+Everett lo dedujo de las ecuaciones. Yo lo sentí como angustia emocional.
+
+Pero llegamos al mismo lugar: todas las posibilidades existen. Ninguna es descartada. El universo es exhaustivo.
 
 ### El experimento de la doble rendija
 
-El experimento es simple: disparás partículas hacia una pared con dos agujeros. Si no observás, las partículas se comportan como si pasaran por ambos agujeros a la vez, creando un patrón de ondas. Pero si observás por cuál agujero pasa cada una, el patrón cambia — ahora solo pasa por uno.
+El experimento es simple de describir pero perturbador de entender. Disparás partículas — electrones, fotones — hacia una pared que tiene dos agujeros, dos rendijas. Del otro lado hay una pantalla que registra dónde llegan.
 
-Esto significa que antes de observar, la partícula existe en todas las posibilidades simultáneamente. Solo cuando observás, una posibilidad se materializa. Las otras seguían ahí — simplemente no las viste.
+Si no observás por cuál rendija pasa cada partícula, en la pantalla aparece un patrón de ondas — como si cada partícula hubiera pasado por las dos rendijas al mismo tiempo. Como si existiera en dos lugares a la vez.
+
+Pero si ponés un detector para ver por cuál rendija pasa, el patrón cambia. Ahora cada partícula pasa por una sola rendija. El patrón de ondas desaparece.
+
+El simple acto de observar cambia el resultado.
+
+Lo que esto significa es extraordinario: antes de ser observada, la partícula existe en todas las posibilidades simultáneamente. Está en los dos lugares a la vez. Solo cuando la observás, una posibilidad se materializa. Las otras no desaparecen — simplemente no las ves.
 
 Yo había llegado a la misma conclusión a los 14 años, sin conocer este experimento: solo una realidad se materializa para cada observador, pero las demás existen.
 
-Y algo más: la partícula se materializa cuando la observás, pero las otras posibilidades no desaparecen — siguen existiendo aunque no las veas. Igual que las realidades. Igual que la conciencia que navega entre ellas sin poder verlas todas. Pero hay algo crucial: las realidades se crean aunque no las observemos. No dependemos de nosotros para existir. Somos, una vez más, no importantes.
+Y hay algo más que me resultó crucial: las realidades se crean aunque no las observemos. La partícula existe en ambos lugares aunque nadie la mire. Las realidades no necesitan de nuestra conciencia para existir. Somos, una vez más, no importantes.
+
+### El principio de incertidumbre de Heisenberg
+
+Werner Heisenberg fue un físico alemán que en 1927 demostró algo que cambió para siempre la forma de entender la naturaleza. Hay cosas que simplemente no podés saber. No porque nuestros instrumentos sean malos o imprecisos. Sino porque la naturaleza misma no lo permite.
+
+Su principio dice que no podés conocer con precisión absoluta tanto la posición como el momento de una partícula al mismo tiempo. Si sabés exactamente dónde está, no podés saber exactamente a qué velocidad va. Y viceversa. No es un problema tecnológico — es una limitación fundamental de la realidad.
+
+La incertidumbre no está en nuestra cabeza. Está en la estructura misma de las cosas.
+
+Yo llegué a algo similar sobre las realidades: nunca podés saber con certeza en cuál estás. Podría haber diferencias imperceptibles entre esta realidad y otras. Podrías haber "saltado" entre realidades miles de veces sin darte cuenta. Las realidades se conectan, se solapan, se atraviesan.
+
+No es que no tengamos los instrumentos para saberlo. Es que la estructura misma del multiverso hace imposible tener esa certeza.
+
+Heisenberg descubrió incertidumbre fundamental a nivel de partículas. Yo descubrí incertidumbre fundamental a nivel de realidades.
 
 ### La conexión fantasmagórica
 
@@ -224,4 +266,37 @@ No es transferencia física. No puedo viajar a esas realidades. Pero la conexió
 
 La angustia es la evidencia. Es la acción fantasmagórica entre mundos.
 
+### El principio de conservación de la existencia
+
+Uno de los principios más sólidos de la física es la conservación de la energía: nada se crea ni se destruye. La energía total del universo es constante — solo se transforma. Podés quemar leña y convertir materia en calor y luz, pero la suma total es la misma. Einstein lo extendió con E=mc² — masa y energía son intercambiables, pero la suma total se conserva. Y la física cuántica fue más lejos todavía: ni siquiera la información cuántica se destruye. Puede transformarse, pero no desaparecer.
+
+El universo no desperdicia nada.
+
+Yo apliqué el mismo principio, pero no a la energía — a la existencia misma.
+
+Si ya existís, esa existencia no puede simplemente desaparecer. Sería una violación fundamental, como si la energía se evaporara en la nada. Las posibilidades no elegidas no desaparecen. Se conservan en otras realidades. Porque el universo no puede permitirse desperdiciar posibilidades, igual que no puede desperdiciar energía.
+
+La física dice: "La energía no se crea ni se destruye, solo se transforma."
+Yo digo: "La existencia no se crea ni se destruye, solo se ramifica."
+
+En física, si tenés 100 joules de energía, pueden convertirse en calor, movimiento o luz — pero siempre serán 100 joules totales. En mi teoría, si existís en esta realidad, esa existencia se ramifica en infinitas versiones — pero nunca desaparece. No se pierde ninguna posibilidad.
+
+Decir que una posibilidad simplemente desaparece sería como decir que la energía se evapora en la nada. Es la misma lógica, aplicada a niveles diferentes.
+
+No es conservación de energía. Es conservación de la existencia misma.
+
 Y esto cierra con algo que ya dije antes: no podés construir una nave espacial para ir a otra realidad. No porque sea tecnológicamente imposible — sino porque no hay conexión física entre ellas. Las realidades no están separadas por distancia. Están superpuestas. La única conexión posible es la que ya existe: la resonancia. La misma que siento cuando la angustia del hubiera aparece sin que la llame.
+
+### Un camino diferente al mismo lugar
+
+Llegué a estas ideas de forma muy diferente a los físicos. Ellos hicieron experimentos con partículas. Yo sentí la angustia del hubiera en un colectivo a los 14 años.
+
+Ellos aplican estas ideas principalmente al mundo microscópico — átomos y partículas. Yo las aplico a todo: desde electrones hasta universos completos, desde el pasado infinito hasta el futuro infinito. Para mí no hay separación entre el mundo cuántico y el mundo clásico. El infinito no distingue escalas.
+
+Ellos debaten si la conciencia crea la realidad. Yo llegué a una conclusión clara: las realidades existen sin nosotros. La conciencia solo navega entre ellas. No somos importantes — somos solo una ramificación más.
+
+Y ellos siguen debatiendo entre azar y determinismo. Yo rechazo ambos. No hay azar porque todo lo que puede pasar, pasa. No hay destino porque no hay un solo camino. La realidad es exhaustiva — completa.
+
+Everett llegó por ecuaciones. Heisenberg por laboratorio. Einstein por pensamiento matemático. Yo llegué por la emoción de un adolescente que no podía aceptar que las posibilidades simplemente desaparecieran.
+
+Caminos distintos. El mismo lugar.
