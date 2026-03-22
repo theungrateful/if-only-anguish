@@ -126,6 +126,8 @@ Incluso hay realidades con solo espacio infinito. Sin estrellas. Sin galaxias. S
 
 Y eso ya es una realidad. El espacio vacío no es "nada" - es algo. Es estructura. Es geometría. Es existencia.
 
+La física cuántica llegó a la misma conclusión por otro camino. Lo que llamamos "vacío" no está realmente vacío. El vacío cuántico está lleno de fluctuaciones — partículas que aparecen y desaparecen constantemente, energía que vibra incluso donde no hay materia. La "nada perfecta" no existe en la naturaleza. El espacio siempre tiene estructura.
+
 **Lo único que no puede existir jamás es la nada misma.**
 
 La nada es una contradicción lógica. Si existiera, sería algo. Y si es algo, ya no es nada.

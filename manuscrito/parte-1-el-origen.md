@@ -44,7 +44,11 @@ Si las posibilidades no desaparecían, si tenían que ir a algún lugar... ¿qu�
 
 Ninguna de las dos opciones me convencía.
 
-Entonces me topé con algo que me hizo replantear todo: las experiencias cercanas a la muerte. Historias de personas que habían estado al borde y describían un túnel, una luz al final, la sensación de movimiento hacia algo. La Iglesia lo interpretaba como evidencia del cielo. Los escépticos lo descartaban como alucinaciones cerebrales por falta de oxígeno.
+Entonces me topé con algo que me hizo replantear todo: las experiencias cercanas a la muerte, conocidas como ECM.
+
+Son relatos de personas que estuvieron clínicamente muertas o al borde de la muerte y que, al volver, describen experiencias similares: un túnel oscuro, una luz al final, la sensación de moverse hacia algo. Personas de distintas culturas, distintas religiones, distintos países, describiendo lo mismo.
+
+Hay dos interpretaciones convencionales. La religiosa dice que el túnel es el camino al cielo o al más allá — evidencia de vida después de la muerte. La escéptica dice que es una alucinación producida por el cerebro cuando le falta oxígeno — nada más que química.
 
 Pero yo vi algo distinto.
 
