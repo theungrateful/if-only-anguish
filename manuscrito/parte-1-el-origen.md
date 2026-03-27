@@ -140,6 +140,44 @@ Ese día fue uno de los más felices de mi vida.
 
 Sentí que no estaba solo. Que esos pensamientos que había tenido a los 14 años, sentado en un colectivo, que había enterrado porque no encajaban con lo que me enseñaban - esos pensamientos de repente eran validados. No por la religión que los había rechazado, sino por la ciencia. Por físicos de verdad. Por gente que estudiaba la naturaleza del universo con ecuaciones y experimentos.
 
-Y lo más impresionante: yo había llegado a esas ideas sin siquiera saber nada sobre el universo. Sin formación. Sin haber leído jamás sobre física cuántica o teorías de multiversos. Había tocado algo verdadero usando solo mi mente, mi experiencia emocional, mi incapacidad de aceptar que las posibilidades simplemente desaparecieran.
+Y lo más maravilloso: algo que había llevado solo durante años, enterrado, sin palabras y sin nadie que lo entendiera, de repente tenía respaldo. No era una idea rara o descabellada. Era algo que otros también habían tocado, por caminos completamente distintos, con herramientas completamente distintas.
 
-Un adolescente de 14 años malo en física había llegado solo a las mismas conclusiones que científicos con doctorados.
+Eso era lo que me llenaba de asombro. No que yo tuviera razón — sino que algo tan real pudiera ser alcanzado desde lugares tan diferentes.
+
+Pero entonces llegó otro muro.
+
+Quería entender esos pensamientos desde adentro. Desde la física, desde las matemáticas, como lo haría cualquier científico. Empecé a ver que para ir más lejos necesitaba herramientas que no tenía — formación académica, estudios de grado, un doctorado. Cosas que no era y que no iba a ser.
+
+Y con eso llegó una frustración distinta a la de los años religiosos. Esta vez no era una imposición externa. Era un límite real. Sentí que las ganas de escribir, de desarrollar esto, de convertirlo en algo, se diluían. La idea de mi propio libro, que había empezado a tomar forma, se cayó como un castillo de naipes.
+
+Una vez más lo guardé. Esta vez por diez años más.
+
+---
+
+### 3. El regreso
+
+Esos diez años no fueron silencio quieto. Fueron un proceso largo y a veces ruidoso.
+
+El ateísmo que había empezado como liberación se convirtió en algo que no me gustaba: una especie de religión al revés. Discusiones con la familia, burlas a las creencias ajenas, energía gastada en negar algo que no podía probar que no existía. En algún punto me di cuenta de que estaba haciendo exactamente lo que criticaba — afirmar con certeza algo sin evidencia, solo que en sentido contrario.
+
+Y entonces el ateísmo dejó de importarme.
+
+No porque volviera a creer. Sino porque entendí que discutir sobre la existencia de Dios era gastar energía en algo que no me llevaba a ningún lado. Era una discusión sin fin, sin pruebas de ningún lado, y yo tenía algo mucho más interesante en lo que pensar.
+
+¿A dónde va lo que no sucede?
+
+Esa pregunta volvió. Y con ella, todo lo demás.
+
+Y esta vez vino acompañada de otra pregunta: ¿realmente necesitaba una formación académica para escribir sobre lo que creo? Me había pasado años pensando que sí. Que sin física, sin matemáticas, sin un doctorado, no tenía derecho a hablar de esto.
+
+Pero entonces pensé en ese chico de 14 años. En lo que le habían enseñado — que el mundo fue creado en siete días, que los dinosaurios eran enterrados por el diablo para confundir a los creyentes, que ciertas preguntas eran "misterios que no deben cuestionarse". Un chico al que regañaron en clase de religión por preguntar demasiado. Que era malo en física y matemáticas. Que no tenía ninguna herramienta formal.
+
+Y sin embargo, ese chico había tocado algo real.
+
+Eso era mi mayor tesoro. No un doctorado. No ecuaciones. Sino la honestidad de alguien que preguntó sin filtros, sin formación, sin miedo a que la respuesta no encajara con lo que le habían dicho.
+
+Decidí escribir desde ahí. Desde ese colectivo.
+
+Y hoy, con lo que tenía escrito, apoyándome en herramientas que antes no existían, me animé de una vez por todas a hacer algo que guardé durante décadas: escribir mi propio libro. Sobre lo que siempre creí. Sobre lo que nunca pude dejar de sentir.
+
+Este libro.
