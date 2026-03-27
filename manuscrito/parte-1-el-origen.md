@@ -178,6 +178,12 @@ Eso era mi mayor tesoro. No un doctorado. No ecuaciones. Sino la honestidad de a
 
 Decidí escribir desde ahí. Desde ese colectivo.
 
-Y hoy, con lo que tenía escrito, apoyándome en herramientas que antes no existían, me animé de una vez por todas a hacer algo que guardé durante décadas: escribir mi propio libro. Sobre lo que siempre creí. Sobre lo que nunca pude dejar de sentir.
+Pero antes de hacerlo, lo compartí. Por primera vez en mi vida, empecé a hablar de estas ideas con personas cercanas. No sabía qué esperar. Quizás incredulidad. Quizás que me dijeran que estaba loco.
+
+No pasó nada de eso.
+
+Vi asombro. Vi alivio. Vi esperanza en caras que no esperaba verla. Y eso terminó de convencerme.
+
+Hoy, apoyándome en herramientas que antes no existían, me animé de una vez por todas a hacer algo que guardé durante décadas: escribir mi propio libro. Sobre lo que siempre creí. Sobre lo que nunca pude dejar de sentir.
 
 Este libro.
